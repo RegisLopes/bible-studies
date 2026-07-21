@@ -5,7 +5,8 @@
 1. Disse-me o Senhor: Vai outra vez, ama uma mulher, amada de seu amigo e adúltera, como o Senhor ama os filhos de Israel, embora eles olhem para outros deuses e amem bolos de passas.
 2. Comprei-a, pois, para mim por quinze peças de prata e um ômer e meio de cevada; 
 3. e lhe disse: tu esperarás por mim muitos dias; não te prostituirás, nem serás de outro homem; assim também eu esperarei por ti.
-4. Porque os filhos de Israel ficarão por muitos dias sem rei, sem príncipe, sem sacrifício, sem coluna, sem estola sacerdotal ou ídolos do lar. 5. Depois, tornarão os filhos de Israel, e buscarão ao Senhor, seu Deus, e a Davi, seu rei; e, nos últimos dias, tremendo, se aproximarão do Senhor e da sua bondade.
+4. Porque os filhos de Israel ficarão por muitos dias sem rei, sem príncipe, sem sacrifício, sem coluna, sem estola sacerdotal ou ídolos do lar. 
+5. Depois, tornarão os filhos de Israel, e buscarão ao Senhor, seu Deus, e a Davi, seu rei; e, nos últimos dias, tremendo, se aproximarão do Senhor e da sua bondade.
 ## Chapter 4
 1. Ouvi a palavra do Senhor, vós, filhos de Israel, porque o Senhor tem uma contenda com os habitantes da terra, porque nela não há verdade, nem amor, nem conhecimento de Deus.
 2. O que só prevalece é perjurar, mentir, matar, furtar e adulterar, e há arrombamentos e homicídios sobre homicídios.
