@@ -27,7 +27,33 @@
 18. Tendo acabado de beber, eles se entregam à prostituição; os seus príncipes amam apaixonadamente a desonra.
 19. O vento os envolveu nas suas asas; e envergonhar-se-ão por causa dos seus sacrifícios.
 ## Chapter 5
+1. Ouvi isto, ó sacerdotes; escutai, ó casa de Israel; e dai ouvidos, ó casa do rei, porque este juízo é contra vós outros, visto que fostes um laço em Mispa e rede estendida sobre o Tabor.
+2. Na prática de excessos, vos aprofundastes; mas eu castigarei a todos eles.
+3. Conheço a Efraim, e Israel não me está oculto; porque, agora, te tens prostituído, ó Efraim, e Israel está contaminado. 
+4. O seu proceder não lhes permite voltar para o seu Deus, porque um espírito de prostituição está no meio deles, e não conhecem ao Senhor.
+5. A soberba de Israel, abertamente, o acusa; Israel e Efraim cairão por causa da sua iniquidade, e Judá cairá juntamente com eles.
+6. Estes irão com os seus rebanhos e o seu gado à procura do Senhor, porém não o acharão; ele se retirou deles. 
+7. Aleivosamente se houveram contra o Senhor, porque geraram filhos bastardos; agora, a Festa da Lua Nova os consumirá com as suas porções.
+8. Tocai a trombeta em Gibeá e em Ramá tocai a rebate! Levantai gritos em Bete-Áven! Cuidado, Benjamim!
+9. Efraim tornar-se-á assolação no dia do castigo; entre as tribos de Israel, tornei conhecido o que se cumprirá.
+10. Os príncipes de Judá são como os que mudam os marcos; derramarei, pois, o meu furor sobre eles como água.
+11. Efraim está oprimido e quebrantado pelo castigo, porque foi do seu agrado andar após a vaidade.
+12. Portanto, para Efraim serei como a traça e para a casa de Judá, como a podridão.
+13. Quando Efraim viu a sua enfermidade, e Judá, a sua chaga, subiu Efraim à Assíria e se dirigiu ao rei principal, que o acudisse; mas ele não poderá curá-los, nem sarar a sua chaga.
+14. Porque para Efraim serei como um leão e como um leãozinho, para a casa de Judá; eu, eu mesmo, os despedaçarei e ir-me-ei embora; arrebatá-los-ei, e não haverá quem os livre.
+15. Irei e voltarei para o meu lugar, até que se reconheçam culpados e busquem a minha face; estando eles angustiados, cedo me buscarão, dizendo:
 ## Chapter 6
+1. Vinde, e tornemos para o Senhor, porque ele nos despedaçou e nos sarará; fez a ferida e a ligará.
+2. Depois de dois dias, nos revigorará; ao terceiro dia, nos levantará, e viveremos diante dele.
+3. Conheçamos e prossigamos em conhecer ao Senhor; como a alva, a sua vinda é certa; e ele descerá sobre nós como a chuva, como chuva serôdia que rega a terra.
+4. Que te farei, ó Efraim? Que te farei, ó Judá? Porque o vosso amor é como a nuvem da manhã e como o orvalho da madrugada, que cedo passa.
+5. Por isso, os abati por meio dos profetas; pela palavra da minha boca, os matei; e os meus juízos sairão como a luz.
+6. Pois misericórdia quero, e não sacrifício, e o conhecimento de Deus, mais do que holocaustos.
+7. Mas eles transgrediram a aliança, como Adão; eles se portaram aleivosamente contra mim.
+8. Gileade é a cidade dos que praticam a injustiça, manchada de sangue.
+9. Como hordas de salteadores que espreitam alguém, assim é a companhia dos sacerdotes, pois matam no caminho para Siquém; praticam abominações. 
+10. Vejo uma coisa horrenda na casa de Israel: ali está a prostituição de Efraim; Israel está contaminado.
+11. Também tu, ó Judá, serás ceifado.
 ## Chapter 7
 ## Chapter 8
 ## Chapter 9
