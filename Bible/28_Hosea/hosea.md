@@ -77,18 +77,49 @@
 2. A mim, me invocam: Nosso Deus! Nós, Israel, te conhecemos.
 3. Israel rejeitou o bem; o inimigo o perseguirá.
 4. Eles estabeleceram reis, mas não da minha parte; constituíram príncipes, mas eu não o soube; da sua prata e do seu ouro fizeram ídolos para si, para serem destruídos.
-5O teu bezerro, ó Samaria, é rejeitado; a minha ira se acende contra eles; até quando serão eles incapazes da inocência?
+5. O teu bezerro, ó Samaria, é rejeitado; a minha ira se acende contra eles; até quando serão eles incapazes da inocência?
 6. Porque vem de Israel, é obra de artífice, não é Deus; mas em pedaços será desfeito o bezerro de Samaria.
 7. Porque semeiam ventos e segarão tormentas; não haverá seara; a erva não dará farinha; e, se a der, comê-la-ão os estrangeiros.
 8. Israel foi devorado; agora, está entre as nações como coisa de que ninguém se agrada,
 9. porque subiram à Assíria; o jumento montês anda solitário, mas Efraim mercou amores.
 10. Todavia, ainda que eles merquem socorros entre as nações, eu os congregarei; já começaram a ser diminuídos por causa da opressão do rei e dos príncipes.
 11. Porquanto Efraim multiplicou altares para pecar, estes lhe foram para pecar.
-12. Embora eu lhe escreva a minha lei em dez mil preceitos, estes seriam tidos como coisa estranha. 
+12. Embora eu lhe escreva a minha lei em dez mil preceitos, estes seriam tidos como coisa estranha.
 13. Amam o sacrifício; por isso, sacrificam, pois gostam de carne e a comem, mas o Senhor não os aceita; agora, se lembrará da sua iniquidade e lhes castigará o pecado; eles voltarão para o Egito.
 14. Porque Israel se esqueceu do seu Criador e edificou palácios, e Judá multiplicou cidades fortes; mas eu enviarei fogo contra as suas cidades, fogo que consumirá os seus palácios.
 ## Chapter 9
+1. Não te alegres, ó Israel, não exultes, como os povos; porque, com prostituir-te, abandonaste o teu Deus, amaste a paga de prostituição em todas as eiras de cereais.
+2. A eira e o lagar não os manterão; e o vinho novo lhes faltará.
+3. Na terra do Senhor, não permanecerão; mas Efraim tornará ao Egito e na Assíria comerá coisa imunda.
+4. Não derramarão libações de vinho ao Senhor, nem os seus sacrifícios lhe serão agradáveis; seu pão será como pão de pranteadores, todos os que dele comerem serão imundos; porque o seu pão será exclusivamente para eles e não entrará na Casa do Senhor.
+5. Que fareis vós no dia da solenidade e no dia da festa do Senhor?
+6. Porque eis que eles se foram por causa da destruição, mas o Egito os ceifará, Mênfis os sepultará; as preciosidades da sua prata, as urtigas as possuirão; espinhos crescerão nas suas moradas.
+7. Chegaram os dias do castigo, chegaram os dias da retribuição; Israel o saberá; o seu profeta é um insensato, o homem de espírito é um louco, por causa da abundância da tua iniquidade, ó Israel, e o muito do teu ódio.
+8. O profeta é sentinela contra Efraim, ao lado de meu Deus, laço do passarinheiro em todos os seus caminhos e inimizade na casa do seu Deus.
+9. Mui profundamente se corromperam, como nos dias de Gibeá. O Senhor se lembrará das suas injustiças e castigará os pecados deles.
+10. Achei a Israel como uvas no deserto, vi a vossos pais como as primícias da figueira nova; mas eles foram para Baal-Peor, e se consagraram à vergonhosa idolatria, e se tornaram abomináveis como aquilo que amaram.
+11. Quanto a Efraim, a sua glória voará como ave; não haverá nascimento, nem gravidez, nem concepção.
+12. Ainda que venham a criar seus filhos, eu os privarei deles, para que não fique nenhum homem. Ai deles, quando deles me apartar!
+13. Efraim, como planejei, seria como Tiro, plantado num lugar aprazível; mas Efraim levará seus filhos ao matador.
+14. Dá-lhes, ó Senhor; que lhes darás? Dá-lhes um ventre estéril e seios secos.
+15. Toda a sua malícia se acha em Gilgal, porque ali passei a aborrecê-los; por causa da maldade das suas obras, os lançarei fora de minha casa; já não os amarei; todos os seus príncipes são rebeldes.
+16. Ferido está Efraim, secaram-se as suas raízes; não dará fruto; ainda que gere filhos, eu matarei os mais queridos do seu ventre.
+17. O meu Deus os rejeitará, porque não o ouvem; e andarão errantes entre as nações.
 ## Chapter 10
+1. Israel é vide luxuriante, que dá o fruto; segundo a abundância do seu fruto, assim multiplicou os altares; quanto melhor a terra, tanto mais belas colunas fizeram.
+2. O seu coração é falso; por isso, serão culpados; o Senhor quebrará os seus altares e deitará abaixo as colunas.
+3. Agora, pois, dirão eles: Não temos rei, porque não tememos ao Senhor. E o rei, que faria por nós?
+4. Falam palavras vãs, jurando falsamente, fazendo aliança; por isso, brota o juízo como erva venenosa nos sulcos dos campos.
+5. Os moradores de Samaria serão atemorizados por causa do bezerro de Bete-Áven; o seu povo se lamentará por causa dele, e os sacerdotes idólatras tremerão por causa da sua glória, que já se foi.
+6. Também o bezerro será levado à Assíria como presente ao rei principal; Efraim se cobrirá de vexame, e Israel se envergonhará por causa de seu próprio capricho.
+7. O rei de Samaria será como lasca de madeira na superfície da água.
+8. E os altos de Áven, pecado de Israel, serão destruídos; espinheiros e abrolhos crescerão sobre os seus altares; e aos montes se dirá: Cobri-nos! E aos outeiros: Caí sobre nós!
+9. Desde os dias de Gibeá, pecaste, ó Israel, e nisto permaneceste. A peleja contra os filhos da perversidade não há de alcançar-te em Gibeá?
+10. Castigarei o povo na medida do meu desejo; e congregar-se-ão contra eles os povos, quando eu o punir por causa de sua dupla transgressão.
+11. Porque Efraim era uma bezerra domada, que gostava de trilhar; coloquei o jugo sobre a formosura do seu pescoço; atrelei Efraim ao carro. Judá lavrará, Jacó lhe desfará os torrões. 12. Então, eu disse: semeai para vós outros em justiça, ceifai segundo a misericórdia; arai o campo de pousio; porque é tempo de buscar ao Senhor, até que ele venha, e chova a justiça sobre vós.
+13. Arastes a malícia, colhestes a perversidade; comestes o fruto da mentira, porque confiastes nos vossos carros e na multidão dos vossos valentes.
+14. Portanto, entre o teu povo se levantará tumulto de guerra, e todas as tuas fortalezas serão destruídas, como Salmã destruiu a Bete-Arbel no dia da guerra; as mães ali foram despedaçadas com seus filhos.
+15. Assim vos fará Betel, por causa da vossa grande malícia; como passa a alva, assim será o rei de Israel totalmente destruído.
 ## Chapter 11
 ## Chapter 12
 ## Chapter 13
