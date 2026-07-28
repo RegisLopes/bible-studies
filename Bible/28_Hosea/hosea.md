@@ -1,6 +1,40 @@
 # Hosea
 ## Chapter 1
+1. Palavra do Senhor, que foi dirigida a Oseias, filho de Beeri, nos dias de Uzias, Jotão, Acaz e Ezequias, reis de Judá, e nos dias de Jeroboão, filho de Joás, rei de Israel.
+2. Quando, pela primeira vez, falou o Senhor por intermédio de Oseias, então, o Senhor lhe disse: Vai, toma uma mulher de prostituições e terás filhos de prostituição, porque a terra se prostituiu, desviando-se do Senhor.
+3. Foi-se, pois, e tomou a Gômer, filha de Diblaim, e ela concebeu e lhe deu um filho.
+4. Disse-lhe o Senhor: Põe-lhe o nome de Jezreel, porque, daqui a pouco, castigarei, pelo sangue de Jezreel, a casa de Jeú e farei cessar o reino da casa de Israel.
+5. Naquele dia, quebrarei o arco de Israel no vale de Jezreel.
+6. Tornou ela a conceber e deu à luz uma filha. Disse o Senhor a Oseias: Põe-lhe o nome de Desfavorecida, porque eu não mais tornarei a favorecer a casa de Israel, para lhe perdoar. 
+7. Porém da casa de Judá me compadecerei e os salvarei pelo Senhor, seu Deus, pois não os salvarei pelo arco, nem pela espada, nem pela guerra, nem pelos cavalos, nem pelos cavaleiros.
+8. Depois de haver desmamado a Desfavorecida, concebeu e deu à luz um filho.
+9. Disse o Senhor a Oseias: Põe-lhe o nome de Não-Meu-Povo, porque vós não sois meu povo, nem eu serei vosso Deus.
+10. Todavia, o número dos filhos de Israel será como a areia do mar, que se não pode medir, nem contar; e acontecerá que, no lugar onde se lhes dizia: Vós não sois meu povo, se lhes dirá: Vós sois filhos do Deus vivo.
+11. Os filhos de Judá e os filhos de Israel se congregarão, e constituirão sobre si uma só cabeça, e subirão da terra, porque grande será o dia de Jezreel.
 ## Chapter 2
+1. Chamai a vosso irmão Meu-Povo e a vossa irmã, Favor.
+2. Repreendei vossa mãe, repreendei-a, porque ela não é minha mulher, e eu não sou seu marido, para que ela afaste as suas prostituições de sua presença e os seus adultérios de entre os seus seios;
+3. para que eu não a deixe despida, e a ponha como no dia em que nasceu, e a torne semelhante a um deserto, e a faça como terra seca, e a mate à sede,
+4. e não me compadeça de seus filhos, porque são filhos de prostituições.
+5. Pois sua mãe se prostituiu; aquela que os concebeu houve-se torpemente, porque diz: Irei atrás de meus amantes, que me dão o meu pão e a minha água, a minha lã e o meu linho, o meu óleo e as minhas bebidas.
+6. Portanto, eis que cercarei o seu caminho com espinhos; e levantarei um muro contra ela, para que ela não ache as suas veredas.
+7. Ela irá em seguimento de seus amantes, porém não os alcançará; buscá-los-á, sem, contudo, os achar; então, dirá: Irei e tornarei para o meu primeiro marido, porque melhor me ia então do que agora.
+8. Ela, pois, não soube que eu é que lhe dei o trigo, e o vinho, e o óleo, e lhe multipliquei a prata e o ouro, que eles usaram para Baal.
+9. Portanto, tornar-me-ei, e reterei, a seu tempo, o meu trigo e o meu vinho, e arrebatarei a minha lã e o meu linho, que lhe deviam cobrir a nudez.
+10. Agora, descobrirei as suas vergonhas aos olhos dos seus amantes, e ninguém a livrará da minha mão.
+11. Farei cessar todo o seu gozo, as suas Festas de Lua Nova, os seus sábados e todas as suas solenidades.
+12. Devastarei a sua vide e a sua figueira, de que ela diz: Esta é a paga que me deram os meus amantes; eu, pois, farei delas um bosque, e as bestas-feras do campo as devorarão.
+13. Castigá-la-ei pelos dias dos baalins, nos quais lhes queimou incenso, e se adornou com as suas arrecadas e com as suas joias, e andou atrás de seus amantes, mas de mim se esqueceu, diz o Senhor.
+14. Portanto, eis que eu a atrairei, e a levarei para o deserto, e lhe falarei ao coração.
+15. E lhe darei, dali, as suas vinhas e o vale de Acor por porta de esperança; será ela obsequiosa como nos dias da sua mocidade e como no dia em que subiu da terra do Egito.
+16. Naquele dia, diz o Senhor, ela me chamará: Meu marido e já não me chamará: Meu Baal.
+17. Da sua boca tirarei os nomes dos baalins, e não mais se lembrará desses nomes. 
+18. Naquele dia, farei a favor dela aliança com as bestas-feras do campo, e com as aves do céu, e com os répteis da terra; e tirarei desta o arco, e a espada, e a guerra e farei o meu povo repousar em segurança.
+19. Desposar-te-ei comigo para sempre; desposar-te-ei comigo em justiça, e em juízo, e em benignidade, e em misericórdias;
+20. desposar-te-ei comigo em fidelidade, e conhecerás ao Senhor.
+21. Naquele dia, eu serei obsequioso, diz o Senhor, obsequioso aos céus, e estes, à terra; 
+22. a terra, obsequiosa ao trigo, e ao vinho, e ao óleo; e estes, a Jezreel.
+23. Semearei Israel para mim na terra e compadecer-me-ei da Desfavorecida; e a Não-Meu-Povo direi: Tu és o meu povo! Ele dirá: Tu és o meu Deus!
 ## Chapter 3
 1. Disse-me o Senhor: Vai outra vez, ama uma mulher, amada de seu amigo e adúltera, como o Senhor ama os filhos de Israel, embora eles olhem para outros deuses e amem bolos de passas.
 2. Comprei-a, pois, para mim por quinze peças de prata e um ômer e meio de cevada; 
@@ -121,6 +155,39 @@
 14. Portanto, entre o teu povo se levantará tumulto de guerra, e todas as tuas fortalezas serão destruídas, como Salmã destruiu a Bete-Arbel no dia da guerra; as mães ali foram despedaçadas com seus filhos.
 15. Assim vos fará Betel, por causa da vossa grande malícia; como passa a alva, assim será o rei de Israel totalmente destruído.
 ## Chapter 11
+1. Quando Israel era menino, eu o amei; e do Egito chamei o meu filho.
+2. Quanto mais eu os chamava, tanto mais se iam da minha presença; sacrificavam a baalins e queimavam incenso às imagens de escultura.
+3. Todavia, eu ensinei a andar a Efraim; tomei-os nos meus braços, mas não atinaram que eu os curava.
+4. Atraí-os com cordas humanas, com laços de amor; fui para eles como quem alivia o jugo de sobre as suas queixadas e me inclinei para dar-lhes de comer.
+5. Não voltarão para a terra do Egito, mas o assírio será seu rei, porque recusam converter-se.
+6. A espada cairá sobre as suas cidades, e consumirá os seus ferrolhos, e as devorará, por causa dos seus caprichos.
+7. Porque o meu povo é inclinado a desviar-se de mim; se é concitado a dirigir-se acima, ninguém o faz.
+8. Como te deixaria, ó Efraim? Como te entregaria, ó Israel? Como te faria como a Admá? Como fazer-te um Zeboim? Meu coração está comovido dentro de mim, as minhas compaixões, à uma, se acendem.
+9. Não executarei o furor da minha ira; não tornarei para destruir a Efraim, porque eu sou Deus e não homem, o Santo no meio de ti; não voltarei em ira.
+10. Andarão após o Senhor; este bramará como leão, e, bramando, os filhos, tremendo, virão do Ocidente;
+11. tremendo, virão, como passarinhos, os do Egito, e, como pombas, os da terra da Assíria, e os farei habitar em suas próprias casas, diz o Senhor.
+12. Efraim me cercou por meio de mentiras, e a casa de Israel, com engano; mas Judá ainda domina com Deus e é fiel com o Santo.
 ## Chapter 12
+1. Efraim apascenta o vento e persegue o vento leste todo o dia; multiplica mentiras e destruição e faz aliança com a Assíria, e o azeite se leva ao Egito.
+2. O Senhor também com Judá tem contenda e castigará Jacó segundo o seu proceder; segundo as suas obras, o recompensará.
+3. No ventre, pegou do calcanhar de seu irmão; no vigor da sua idade, lutou com Deus;
+4. lutou com o anjo e prevaleceu; chorou e lhe pediu mercê; em Betel, achou a Deus, e ali falou Deus conosco.
+5. O Senhor, o Deus dos Exércitos, o Senhor é o seu nome;
+6. converte-te a teu Deus, guarda o amor e o juízo e no teu Deus espera sempre.
+7. Efraim, mercador, tem nas mãos balança enganosa e ama a opressão;
+8. mas diz: Contudo, me tenho enriquecido e adquirido grandes bens; em todos esses meus esforços, não acharão em mim iniquidade alguma, nada que seja pecado.
+9. Mas eu sou o Senhor, teu Deus, desde a terra do Egito; eu ainda te farei habitar em tendas, como nos dias da festa.
+10. Falei aos profetas e multipliquei as visões; e, pelo ministério dos profetas, propus símiles.
+11. Se há em Gileade transgressão, pura vaidade são eles; se em Gilgal sacrificam bois, os seus altares são como montões de pedra nos sulcos dos campos.
+12. Jacó fugiu para a terra da Síria, e Israel serviu por uma mulher e por ela guardou o gado.
+13. Mas o Senhor, por meio de um profeta, fez subir a Israel do Egito e, por um profeta, foi ele guardado.
+14. Efraim mui amargamente provocou à ira; portanto, o Senhor deixará ficar sobre ele o sangue por ele derramado; e fará cair sobre ele o seu opróbrio.
 ## Chapter 13
+1Quando falava Efraim, havia tremor; foi exaltado em Israel, mas ele se fez culpado no tocante a Baal e morreu. 2Agora, pecam mais e mais, e da sua prata fazem imagens de fundição, ídolos segundo o seu conceito, todos obra de artífices, e dizem: Sacrificai a eles. Homens até beijam bezerros! 3Por isso, serão como nuvem de manhã, como orvalho que cedo passa, como palha que se lança da eira e como fumaça que sai por uma janela. 4Todavia, eu sou o Senhor, teu Deus, desde a terra do Egito; portanto, não conhecerás outro deus além de mim, porque não há salvador, senão eu.
+5Eu te conheci no deserto, em terra muito seca. 6Quando tinham pasto, eles se fartaram, e, uma vez fartos, ensoberbeceu-se-lhes o coração; por isso, se esqueceram de mim. 7Sou, pois, para eles como leão; como leopardo, espreito no caminho. 8Como ursa, roubada de seus filhos, eu os atacarei e lhes romperei a envoltura do coração; e, como leão, ali os devorarei, as feras do campo os despedaçarão. 9A tua ruína, ó Israel, vem de ti, e só de mim, o teu socorro. 10Onde está, agora, o teu rei, para que te salve em todas as tuas cidades? E os teus juízes, dos quais disseste: Dá-me rei e príncipes? 11Dei-te um rei na minha ira e to tirei no meu furor.
+12As iniquidades de Efraim estão atadas juntas, o seu pecado está armazenado. 13Dores de parturiente lhe virão; ele é filho insensato, porque é tempo, e não sai à luz, ao abrir-se da madre. 14Eu os remirei do poder do inferno e os resgatarei da morte; onde estão, ó morte, as tuas pragas? Onde está, ó inferno, a tua destruição? Meus olhos não veem em mim arrependimento algum. 15Ainda que ele viceja entre os irmãos, virá o vento leste, vento do Senhor, subindo do deserto, e secará a sua nascente, e estancará a sua fonte; ele saqueará o tesouro de todas as coisas preciosas. 16Samaria levará sobre si a sua culpa, porque se rebelou contra o seu Deus; cairá à espada, seus filhos serão despedaçados, e as suas mulheres grávidas serão abertas pelo meio.
 ## Chapter 14
+1Volta, ó Israel, para o Senhor, teu Deus, porque, pelos teus pecados, estás caído. 2Tende convosco palavras de arrependimento e convertei-vos ao Senhor; dizei-lhe: Perdoa toda iniquidade, aceita o que é bom e, em vez de novilhos, os sacrifícios dos nossos lábios. 3A Assíria já não nos salvará, não iremos montados em cavalos e não mais diremos à obra das nossas mãos: tu és o nosso Deus; por ti o órfão alcançará misericórdia.
+4Curarei a sua infidelidade, eu de mim mesmo os amarei, porque a minha ira se apartou deles. 5Serei para Israel como orvalho, ele florescerá como o lírio e lançará as suas raízes como o cedro do Líbano. 6Estender-se-ão os seus ramos, o seu esplendor será como o da oliveira, e sua fragrância, como a do Líbano. 7Os que se assentam de novo à sua sombra voltarão; serão vivificados como o cereal e florescerão como a vide; a sua fama será como a do vinho do Líbano.
+8Ó Efraim, que tenho eu com os ídolos? Eu te ouvirei e cuidarei de ti; sou como o cipreste verde; de mim procede o teu fruto.
+9Quem é sábio, que entenda estas coisas; quem é prudente, que as saiba, porque os caminhos do Senhor são retos, e os justos andarão neles, mas os transgressores neles cairão.
